@@ -1,1 +1,0 @@
-# TechpointWSA2022
